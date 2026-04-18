@@ -9,6 +9,6 @@
 </p>
 <div align="center">
 
-♪ ㅤㅤthis is Real Footage of [@cavaIiers](https://github.com/cavaIiers) ㅤ #GreenMachines
+♪ ㅤㅤthis is Real footage of [@cavaIiers](https://github.com/cavaIiers) ㅤ #GreenMachines
 
 sorry couldn't find anything Trumpet Related ;/// Smh myHead
