@@ -12,7 +12,7 @@ ${\color{#019cbd} the\space act\space of\space observation\space changes\space t
 
 ${\color{#cd1069} is\space reality\space in\space the\space eye\space of\space the\space beholder,} $
 
-${\color{#2596be} or\space is\space it\space observation\space itself\space that\space creates\space our\space reality?} $
+${\color{#ffd501} or\space is\space it\space observation\space itself\space that\space creates\space our\space reality?} $
   
 </div>
 
