@@ -1,13 +1,19 @@
 
 
 
-<div align="center">
-  <video src="https://github.com/user-attachments/assets/b978ef09-4fb9-49be-b567-612a85cdb051" />
-</div>
-
-<div align="center">
+<div align="right">
   
-♪ ㅤ 　[@cavaIiers](https://github.com/cavaIiers)
+  ![]()
+
+<div align="right">
+ㅤ
+  ㅤㅤ
+  
+the act of observation changes the world around us. 
+
+is reality in the eye of the beholder, 
+
+or is it observation itself that creates our reality?
   
 </div>
 
