@@ -3,7 +3,7 @@
 
 <div align="center">
   
-  ![](https://i.ibb.co/HLrM5jZR/Untitled83-20260506194524.png)
+  ![](https://i.ibb.co/Vp32bCmB/Untitled83-20260506194651.png)
 
 <div align="center">
 ㅤ
