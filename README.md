@@ -7,9 +7,8 @@
 
 <div align="center">
 ㅤ
-  ㅤㅤ
   
-the act of observation changes the world around us. 
+${\color{#019cbd} the\space act\space of\space observation\space changes\space the\space world\space around\space us.} $
 
 is reality in the eye of the beholder, 
 
