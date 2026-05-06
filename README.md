@@ -1,11 +1,11 @@
 
 
 
-<div align="right">
+<div align="center">
   
-  ![]()
+  ![](https://i.ibb.co/HLrM5jZR/Untitled83-20260506194524.png)
 
-<div align="right">
+<div align="center">
 ㅤ
   ㅤㅤ
   
